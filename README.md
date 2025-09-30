@@ -3,5 +3,5 @@
 </a>
 <p align="center"> kellen⠀or⠀lewis⠀✦⠀strictly⠀it⠀/⠀circus </p>
 <p align="center"> <a href="https://freddy-fazbears-pizza.fandom.com/wiki/Funtime_Freddy">funtime⠀freddy</a>⠀&&⠀<a href="https://dawkos-alter-egos.fandom.com/wiki/Darko">darko</a>⠀fictkin c'link
-<p align="center"> ![](https://komarev.com/ghpvc/?username=hellofascination&color=blueviolet&abbreviated=true&style=flat-square&label=★) </p>
+<p align="center"> ![](https://komarev.com/ghpvc/?username=hellofascination&color=blueviolet&abbreviated=true&style=flat-square) </p>
 <p align="center"> <a href="https://fluffle.cc/teadragon">rentry</a>⠀✦⠀<a href="https://hellofascination.atabook.org">atabook</a>⠀✦⠀<a href="https://guns.lol/breathecarolina">guns.lol</a> </p>
